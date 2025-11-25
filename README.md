@@ -2,13 +2,14 @@
 
 ⠀ ⠀ ⠀ 
 
-![](https://komarev.com/ghpvc/?username=ryvnq&label=⟢living&color=blue)
+![](https://komarev.com/ghpvc/?username=ryvnq&label=⟢living&color=871f1f)
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
 
-<img width="400" height="400" src="https://github.com/user-attachments/assets/bf2696f3-be00-4af4-ad69-5d68d6e9a0d1" />
+
+<img width="400" height="400" alt="IMG_2529" src="https://github.com/user-attachments/assets/5cd61b67-07f1-40a7-bb39-ad28d4c6b4dc" />
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
