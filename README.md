@@ -2,7 +2,7 @@
 
 ⠀ ⠀ ⠀ 
 
-![](https://komarev.com/ghpvc/?username=ryvnq&label=⟢living&color=abb0ac)
+![](https://komarev.com/ghpvc/?username=ryvnq&label=Robloxians&color=abb0ac)
 
  ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
