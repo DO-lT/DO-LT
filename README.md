@@ -1,9 +1,5 @@
 <div align="center">
 
-⠀ ⠀ ⠀ 
-
-![](https://komarev.com/ghpvc/?username=ryvnq&label=⠀Robloxians+:⠀&color=abb0ac)
-
  ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
