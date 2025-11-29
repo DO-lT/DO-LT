@@ -1,14 +1,20 @@
 <div align="center">
 
- ⠀ ⠀ 
-⠀ ⠀ ⠀ 
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&size=13&pause=1000&color=abb0ac&center=true&vCenter=true&width=435&lines=%E2%80%9C+please+don%E2%80%99t+kill+me+!+%E2%80%9C)](https://git.io/typing-svg)
-
-
-<img width="350" height="350" alt="IMG_2529" src="https://github.com/user-attachments/assets/5cd61b67-07f1-40a7-bb39-ad28d4c6b4dc" />
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-[**rentry**](https://rentry.co/inrtia)
+
+<img width="670" height="340" alt="download-removebg-preview" src="https://github.com/user-attachments/assets/0929c6e7-36e0-460f-81b9-2014e17b2e36" />
+
+
+⠀ ⠀ ⠀ 
+⠀ ⠀ ⠀ 
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tangerine&size=35&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=%22+You+Can't+Reach+Me.++%22)](https://git.io/typing-svg)
+
+
+†
+
+
+[𝓇𝑒𝓃𝓉𝓇𝓎](https://rentry.co/inrtia)
