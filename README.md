@@ -17,4 +17,4 @@ This user is literally [Sosuke Aizen](https://bleach.fandom.com/wiki/Sousuke_Aiz
 †
 
 
-[𝓇𝑒𝓃𝓉𝓇𝓎](https://rentry.co/inrtia)
+[rentry](https://rentry.co/inrtia)
