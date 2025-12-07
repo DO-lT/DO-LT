@@ -5,13 +5,13 @@
 ⠀ ⠀ ⠀ 
 
 
-<img width="670" height="340" alt="download-removebg-preview" src="https://github.com/user-attachments/assets/0929c6e7-36e0-460f-81b9-2014e17b2e36" />
+<img width="350" height="350" alt="download-removebg-preview" src="https://github.com/user-attachments/assets/10a358aa-67be-45b6-8434-f17883a1925b" />
 
 
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tangerine&size=35&pause=1000&color=FFFFFF&center=true&vCenter=true&width=435&lines=%22+You+Can't+Reach+Me.++%22)](https://git.io/typing-svg)
+This user is literally [Sosuke Aizen](https://bleach.fandom.com/wiki/Sousuke_Aizen) in real life
 
 
 †
