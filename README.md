@@ -10,7 +10,7 @@
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-This user is literally [Sosuke Aizen](https://bleach.fandom.com/wiki/Sousuke_Aizen) in real life
+This user is⠀ ⠀ $\color{#957ccf}{\textsf{Sousuke Aizen}}$ ⠀ ⠀himself
 
 
 †
