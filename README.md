@@ -10,13 +10,14 @@
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-This user is⠀ ⠀ $\color{#957ccf}{\textsf{Sousuke Aizen}}$ ⠀ ⠀himself
+$\color{#ffffff}{\textsf{This user is}}$⠀ ⠀ $\color{#aa8cde}{\textsf{Sousuke Aizen}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{himself}}$
+
+$\color{#ffffff}{\textsf{Sometimes}}$⠀ ⠀  $\color{#8cdeb3}{\textsf{Ulquiorra Cifer}}$
+
+$\color{#ffffff}{\textsf{But mainly}}$⠀ ⠀ $\color{#aa8cde}{\textsf{Sousuke Aizen}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{himself}}$
 
 
-†
+$\color{#ffffff}{\textsf{†}}$
 
 
 [rentry](https://rentry.co/inrtia)
-
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=999999&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31p7k4lkdecbilvh5rthmgvkujm4&redirect=true)
