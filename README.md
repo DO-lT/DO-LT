@@ -10,7 +10,7 @@
 ⠀ ⠀ ⠀ 
 ⠀ ⠀ ⠀ 
 
-$\color{#ffffff}{\textsf{“⠀ Since when did}}$⠀ ⠀ $\color{#D8C9A1}{\textsf{YOU}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{suspect me?⠀ “}}$
+$\color{#ffffff}{\textsf{“⠀ Since when did}}$⠀ ⠀ $\color{#c9b25d}{\textsf{YOU}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{suspect me?⠀ “}}$
 
 
 
