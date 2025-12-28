@@ -12,8 +12,6 @@
 
 $\color{#ffffff}{\textsf{“⠀ Since when did}}$⠀ ⠀ $\color{#D8C9A1}{\textsf{YOU}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{suspect me?⠀ “}}$
 
-$\color{#aa8cde}{\textsf{c+h 24/7}}$
-
 
 
 
