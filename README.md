@@ -12,9 +12,7 @@
 
 $\color{#ffffff}{\textsf{This user is}}$⠀ ⠀ $\color{#aa8cde}{\textsf{Sousuke Aizen}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{himself}}$
 
-$\color{#ffffff}{\textsf{Sometimes}}$⠀ ⠀  $\color{#8cdeb3}{\textsf{Ulquiorra Cifer}}$
 
-$\color{#ffffff}{\textsf{But mainly}}$⠀ ⠀ $\color{#aa8cde}{\textsf{Sousuke Aizen}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{himself}}$
 
 
 $\color{#ffffff}{\textsf{†}}$
