@@ -2,9 +2,9 @@
 
 
   
-### $\color{#ffffff}{\textsf{c+h freely, open 24/7}}$
+### c+h freely, open 24/7
 
-$\color{#ffffff}{\textsf{(＾＿＾)}}$
+(＾＿＾)
 
  ⠀ ⠀
  ⠀ ⠀
