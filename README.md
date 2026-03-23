@@ -2,7 +2,7 @@
 
 
   
-### $\color{#ffffff}{\textsf{c+h freely, open 24/7}}$
+### $\color{#ffffff}{\textsf{c+h freely, welcome you 24/7}}$
 
 $\color{#ffffff}{\textsf{( ◠‿◠ )}}$
 
