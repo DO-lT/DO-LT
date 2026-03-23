@@ -1,21 +1,9 @@
 <div align="center">
 
 
-⠀ ⠀ ⠀ 
-⠀ ⠀ ⠀ 
+  
+### $\color{#ffffff}{\textsf{c+h freely, open 24/7}}$
 
-<img width="350" height="350" alt="download-removebg-preview" src="https://github.com/user-attachments/assets/10a358aa-67be-45b6-8434-f17883a1925b" />
+$\color{#ffffff}{\textsf{( ◠‿◠ )}}$
 
-
-⠀ ⠀ ⠀ 
-⠀ ⠀ ⠀ 
-
-$\color{#ffffff}{\textsf{“⠀ Since when did}}$⠀ ⠀ $\color{#c9b25d}{\textsf{YOU}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{suspect me?⠀ “}}$
-
-
-
-
-$\color{#ffffff}{\textsf{†}}$
-
-
-[rentry](https://rentry.co/inrtia)
+![IMG_1635](https://github.com/user-attachments/assets/172fd001-297e-4e2e-8ff2-98557dbbc6c4)
