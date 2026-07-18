@@ -7,7 +7,7 @@ all ships are welcomed as long as they are not a proship!!
 
 
  ⠀ ⠀
-![hello](https://komarev.com/ghpvc/?username=valendie&color=lightgray)
+![](https://komarev.com/ghpvc/?username=valendie&label=hello+visitors&style=flat&color=lightgray)
 
 
  
