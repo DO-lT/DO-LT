@@ -2,7 +2,7 @@
 
 
   
-### c+h freely, open 24/7
+### c+h freely — open 24/7
 #### all ships including yumeship are all welcomed!!
 ##### whatever thats not proships ok
 
