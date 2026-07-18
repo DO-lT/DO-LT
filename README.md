@@ -7,7 +7,7 @@ all ships are welcomed as long as they are not a proship!!
 
 
  ⠀ ⠀
-<img width="20" height="20" alt="IMG_9080" src="https://github.com/user-attachments/assets/87e1eeb2-6669-42d7-9c19-fdacf1c8150b" />
+
 
 
  
