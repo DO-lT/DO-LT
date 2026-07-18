@@ -3,7 +3,7 @@
 
   
 ### c+h freely, open 24/7
-all ships are welcomed as long as they're not a proship!!
+all ships are welcomed as long as they are not a proship!!
 
 
  ⠀ ⠀
