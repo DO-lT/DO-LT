@@ -3,7 +3,8 @@
 
   
 ### c+h freely — open 24/7
-#### all ships including yumeship are all welcomed!!!!1!
+#### feel free to int and sit with me
+#### everyone and all ships including yumeship are all welcomed!!!!1!
 ##### whatever thats not proships ok
 
 
