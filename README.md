@@ -10,7 +10,7 @@
 
 ### <img width="78" height="43" alt="IMG_9083" src="https://github.com/user-attachments/assets/7e5841e9-754e-468b-a692-63a8fb9d8c6b" />
 
-![](https://komarev.com/ghpvc/?username=valendie&label=hi&style=plastic&color=yellow)
+![](https://komarev.com/ghpvc/?username=valendie&label=hi&style=plastic&color=green)
 
 [rentry](https://rentry.co/valendie)
 
