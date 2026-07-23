@@ -14,4 +14,4 @@
 
 [rentry](https://rentry.co/valendie)
 
-<img width="720" height="248" alt="IMG_6190" src="https://github.com/user-attachments/assets/caecef18-cd74-4a05-a2e3-29f128d190d8" />
+<img width="749" height="485" alt="IMG_9249" src="https://github.com/user-attachments/assets/2ad7bc9d-2766-4c27-b61f-0117a3592559" />
