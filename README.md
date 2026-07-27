@@ -2,15 +2,12 @@
 
 
   
-### c+h freely — open 24/7
-#### feel free to int or sit with me
-#### everyone and all ships including yumeship are all welcomed!!!!1!
-##### whatever thats not proships ok
+### $\color{#ffffff}{\textsf{c+h⠀ freely⠀ —⠀ open⠀ 24/7}}$
+#### $\color{#ffffff}{\textsf{feel  free⠀ to⠀ int⠀ or⠀ sit⠀ with⠀ me}}$
+#### $\color{#ffffff}{\textsf{everyone⠀ and⠀ all⠀ ships⠀ and⠀ yume/selfships⠀ are⠀ all welcomed!!!!1!}}$
+##### $\color{#ffffff}{\textsf{whatever⠀ thats⠀ not⠀ proships⠀ ok}}$
 
-
-### <img width="78" height="43" alt="IMG_9083" src="https://github.com/user-attachments/assets/7e5841e9-754e-468b-a692-63a8fb9d8c6b" />
-
-![](https://komarev.com/ghpvc/?username=valendie&label=hi&style=plastic&color=green)
+![](https://komarev.com/ghpvc/?username=valendie&label=hi&style=plastic&color=grey)
 
 [rentry](https://rentry.co/valendie)
 
