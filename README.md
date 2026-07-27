@@ -2,10 +2,6 @@
 
 
   
-### $\color{#ffffff}{\textsf{c+h⠀ freely⠀ —⠀ open⠀ 24/7}}$
-#### $\color{#ffffff}{\textsf{feel  free⠀ to⠀ int⠀ or⠀ sit⠀ with⠀ me}}$
-#### $\color{#ffffff}{\textsf{all⠀ ships⠀ are⠀ all welcomed!!!!1!}}$
-##### $\color{#ffffff}{\textsf{whatever⠀ thats⠀ not⠀ proships⠀ ok}}$
 
 ![](https://komarev.com/ghpvc/?username=valendie&label=hi&style=plastic&color=grey)
 
