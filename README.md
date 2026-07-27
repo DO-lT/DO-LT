@@ -3,7 +3,7 @@
 
   
 
-![](https://komarev.com/ghpvc/?username=valendie&label=hi&style=plastic&color=grey)
+![](https://komarev.com/ghpvc/?username=valendie&label=Zeros:&style=plastic&color=grey)
 
 [rentry](https://rentry.co/valendie)
 
