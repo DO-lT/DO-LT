@@ -5,7 +5,7 @@
 
 ![](https://komarev.com/ghpvc/?username=valendie&label=Zeros:&style=plastic&color=grey)
 
-# 100 followers!!! thanks everyone ❤️
+# 100 followers!!! thanks everyone <3
 
 [rentry](https://rentry.co/do-lt)
 
