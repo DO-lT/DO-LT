@@ -17,11 +17,11 @@
 
  ㅤ
  
-${\color{#f77742}{\textsf :}} \color{#dafafe}{\textsf{zero}} \color{#f77742}{\textsf{or}}  \color{#883a72}{\textsf{zen}}$
+${\color{#f77742}:}$$ $${\color{#dafafe}zero}$$ $${\color{#f77742}or}$$  $${\color{#883a72}zen}}$$
 <br/>
-${\color{#dafafe}{\textsf c ⭑ h}}  \color{#883a72}{\textsf{freely}}$  $\color{#f77742}{\textsf{always}}$
+${\color{#dafafe} c ⭑ h}}  $${\color{#883a72}freely}}$  $${\color{#f77742}always}}$
 <br/>
-[rentry](https://kaveh.atabook.org) 　‎　 [pronouns.p](https://en.pronouns.page/@ctwqls)
+[rentry](https://rentry.co/do-lt) 　‎　 [pronouns.p](https://en.pronouns.page/@ctwqls)
 
 
 
