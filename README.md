@@ -3,7 +3,7 @@
 
   
 
-![](https://komarev.com/ghpvc/?username=valendie&label=　　　Riders　　　&style=for-the-badge&color=f77742)　 $${\color{#dafafe} MIGHTY　ACTION　-　X　!!!}$$
+![](https://komarev.com/ghpvc/?username=valendie&label=　　　Riders　　　&style=for-the-badge&color=f77742)　 $\color{#dafafe}{\textsf{⠀ MIGHTY}}$⠀ ⠀ $\color{#dafafe}{\textsf{ACTION}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{-}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{X}}$ ⠀ ⠀ 
 
 
 </p>
