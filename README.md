@@ -4,7 +4,7 @@
 
   
 
-![](https://komarev.com/ghpvc/?username=valendie&label=　　　Riders　　　&style=for-the-badge&color=ffa837)　 $\color{#d7f9fe}{\textsf{⠀ MIGHTY}}$⠀ ⠀ $\color{#dafafe}{\textsf{ACTION}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{—}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{X}}$ ⠀ ⠀ 
+![](https://komarev.com/ghpvc/?username=valendie&label=　　　Citizens　　　&style=for-the-badge&color=1B1E23)　 $\color{#86DCD5}{\textsf{⠀ Spidey}}$⠀ ⠀ $\color{#86DCD5}{\textsf{Pool}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{—}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{!!!}}$ ⠀ ⠀ 
 
 
 </p>
@@ -21,9 +21,9 @@
 
  ㅤ
  
-$\color{#ff7c3b}{\textsf{⠀ :}}$⠀ ⠀ $\color{#d7f9fe}{\textsf{zero}}$ ⠀ ⠀ $\color{#ff7c3b}{\textsf{or}}$ ⠀ $\color{#8e3870}{\textsf{zen}}$
+$\color{#B43B35}{\textsf{⠀ :}}$⠀ ⠀ $\color{#86DCD5}{\textsf{zero}}$ ⠀ ⠀ $\color{#B43B35}{\textsf{or}}$ ⠀ $\color{#1B1E23}{\textsf{zen}}$
 <br/>
-$\color{#d7f9fe}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#8e3870}{\textsf{freely}}$ ⠀ ⠀ $\color{#ffa837}{\textsf{always}}$
+$\color{#86DCD5}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#1B1E23}{\textsf{freely}}$ ⠀ ⠀ $\color{#B43B35}{\textsf{always}}$
 <br/>
 [rentry](https://rentry.co/do-lt) 　‎　 [pronouns.p](https://en.pronouns.page/@ctwqls)
 
