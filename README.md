@@ -4,7 +4,7 @@
 
   
 
-![](https://komarev.com/ghpvc/?username=valendie&label=　　　Citizens　　　&style=for-the-badge&color=1B1E23)　 $\color{#86DCD5}{\textsf{⠀ Spidey}}$⠀ ⠀ $\color{#86DCD5}{\textsf{Pool}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{—}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{!!!}}$ ⠀ ⠀ 
+![](https://komarev.com/ghpvc/?username=valendie&label=　　　Citizens　　　&style=for-the-badge&color=B43B35)　 $\color{#86DCD5}{\textsf{⠀ Spidey}}$⠀ ⠀ $\color{#86DCD5}{\textsf{Pool}}$ ⠀ ⠀ $\color{#1B1E23}{\textsf{—}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{!!!}}$ ⠀ ⠀ 
 
 
 </p>
@@ -38,4 +38,4 @@ $\color{#86DCD5}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#1B1E23}{\textsf{freely}}$
  
 
  ㅤ
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Tiny5&duration=2500&pause=50&color=d7f9fe&center=true&vCenter=true&width=435&lines=LET'S+GAME!;SUPER+GAME!;ULTRA+GAME!;WHATCHA+NAME!%3F;I'M+A+KAMEN+RIDER)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tiny5&duration=2500&pause=50&color=B43B35&center=true&vCenter=true&width=435&lines=I+ship+Deadpool+x+Comic+Spiderman;not+Wade+x+Peter;ok?)](https://git.io/typing-svg)
