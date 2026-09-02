@@ -38,4 +38,4 @@ $\color{#86DCD5}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#1B1E23}{\textsf{freely}}$
  
 
  ㅤ
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tiny5&duration=2500&pause=50&color=B43B35&center=true&vCenter=true&width=435&lines=I+ship+Deadpool+x+Comic+Spiderman;not+Wade+x+Peter;ok?)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tiny5&duration=2500&pause=50&color=B43B35&center=true&vCenter=true&width=435&lines=I+ship+Deadpool+x+Comic+Spiderman;not+Wade+x+Peter;other+ships+of+them+are+fine+by+me+too!;ok)](https://git.io/typing-svg)
