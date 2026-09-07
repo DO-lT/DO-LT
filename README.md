@@ -4,13 +4,14 @@
 
   
 
-![](https://komarev.com/ghpvc/?username=valendie&label=　　　Citizens　　　&style=for-the-badge&color=B43B35)　 $\color{#86DCD5}{\textsf{⠀ Spidey}}$⠀ ⠀ $\color{#86DCD5}{\textsf{Pool}}$ ⠀ ⠀ $\color{#1B1E23}{\textsf{—}}$ ⠀ ⠀ $\color{#dafafe}{\textsf{!!!}}$ ⠀ ⠀ 
+![](https://komarev.com/ghpvc/?username=valendie&label=　　　Souls　　　&style=for-the-badge&color=FF0000)　 $\color{#84fff2}{\textsf{⠀ Sans}}$⠀ ⠀ $\color{#808080}{\textsf{is}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{literally}}$ ⠀ ⠀ $\color{#84fff2}{\textsf{me}}$ ⠀ ⠀ 
 
 
 </p>
 
 
-<p align="center"><img width="400" src="https://github.com/user-attachments/assets/bb7159c6-f6bc-42c6-898e-32110fd06113" align="right" width="300" /></p>
+<p align="center"><img width="300" src="https://github.com/user-attachments/assets/c59053b8-4849-4fcf-bc40-bac6accde08f" align="right" width="300" /></p>
+
                                                                                                                                                           
 
 
@@ -19,11 +20,10 @@
 
  
 
- ㅤ
  
-$\color{#B43B35}{\textsf{⠀ :}}$⠀ ⠀ $\color{#86DCD5}{\textsf{zero}}$ ⠀ ⠀ $\color{#B43B35}{\textsf{or}}$ ⠀ $\color{#1B1E23}{\textsf{zen}}$
+$\color{#ffffff}{\textsf{⠀ :}}$⠀ ⠀ $\color{#84fff2}{\textsf{zero}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{or}}$ ⠀ $\color{#808080}{\textsf{zen}}$
 <br/>
-$\color{#86DCD5}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#1B1E23}{\textsf{freely}}$ ⠀ ⠀ $\color{#B43B35}{\textsf{always}}$
+$\color{#84fff2}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{always}}$
 <br/>
 [rentry](https://rentry.co/do-lt) 　‎　 [pronouns.p](https://en.pronouns.page/@ctwqls)
 
