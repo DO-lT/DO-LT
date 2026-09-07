@@ -9,8 +9,7 @@
 
 </p>
 
-
-<p align="center"><img width="300" src="https://github.com/user-attachments/assets/c59053b8-4849-4fcf-bc40-bac6accde08f" align="right" width="300" /></p>
+<p align="center"><img width="250" src="https://github.com/user-attachments/assets/c59053b8-4849-4fcf-bc40-bac6accde08f" align="right" width="250" /></p>
 
                                                                                                                                                           
 
@@ -27,15 +26,19 @@ $\color{#84fff2}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$
 <br/>
 [rentry](https://rentry.co/do-lt) 　‎　 [pronouns.p](https://en.pronouns.page/@ctwqls)
 
+                                                                                                                                                          
 
 
- 
 
- ㅤ
- 
 
 
  
 
- ㅤ
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Tiny5&duration=2500&pause=50&color=B43B35&center=true&vCenter=true&width=435&lines=I+ship+Deadpool+x+Comic+Spiderman;not+Wade+x+Peter;other+ships+of+them+are+fine+by+me+too!;ok)](https://git.io/typing-svg)
+
+                                                                                                                                                          
+
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7xfoorpoummbqrmrxycwuftau&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7xfoorpoummbqrmrxycwuftau&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false">
+  </a>
+</p>
