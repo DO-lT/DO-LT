@@ -2,9 +2,16 @@
 <div align="center">
 
 
-  
 
-![](https://komarev.com/ghpvc/?username=valendie&label=　　　Souls　　　&style=for-the-badge&color=FF0000)　 $\color{#84fff2}{\textsf{⠀ Sans}}$⠀ ⠀ $\color{#808080}{\textsf{is}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{literally}}$ ⠀ ⠀ $\color{#84fff2}{\textsf{me}}$ ⠀ ⠀ 
+                                                                                                                                                          
+
+
+
+
+
+ 
+
+ ![](https://komarev.com/ghpvc/?username=valendie&label=　　　Souls　　　&style=for-the-badge&color=FF0000)　 $\color{#84fff2}{\textsf{⠀ Sans}}$⠀ ⠀ $\color{#808080}{\textsf{is}}$ ⠀ ⠀ $\color{#ffffff}{\textsf{literally}}$ ⠀ ⠀ $\color{#84fff2}{\textsf{me}}$ ⠀ ⠀ 
 
 
 </p>
@@ -47,5 +54,12 @@ $\color{#84fff2}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$
 
 
 
-  
+                                                                                                                                                          
 
+
+
+
+
+ 
+
+ 
