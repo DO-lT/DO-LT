@@ -44,3 +44,8 @@ $\color{#84fff2}{\textsf{⠀  c + h}}$⠀ ⠀ $\color{#808080}{\textsf{freely}}$
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31t7xfoorpoummbqrmrxycwuftau&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false">
   </a>
 </p>
+
+
+
+  
+
